@@ -2,7 +2,7 @@
 - 👀 I’m interested in tech electronics and python and athor coding languages
 - 🌱 I’m currently learning python in an intermidiante level
 - 💞️ I’m looking to collaborate on tech and coding stuff
-- 📫 How to reach me: email=orenhagil@gmail.com
+- 📫 How to reach me: email=orenhargil@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im in highschool
 
